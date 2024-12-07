@@ -1,6 +1,3 @@
-# -ABOUT-MEEE-
-
-
 ┆⁠ˏˋ°•\*⁀➷ name: Menhera
 ┆⁠
 ┆⁠ˏˋ°•\*⁀➷ pronouns: she/her
